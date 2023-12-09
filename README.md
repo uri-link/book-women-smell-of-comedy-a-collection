@@ -149,3 +149,7 @@ The smell was so strong.
 when your ready to move on, who was in those furry costumes?!?!?!?!
 
 A new mystery awaits. A new smell emerges from the depths of hell.
+
+<img src="https://github.com/uri-link/book-women-smell-of-comedy-a-collection/blob/main/5552dream_TradingCard.jpg" width="500px"></img>
+
+A cyber furry female from the stinkingest depths of hell awaits in the sequel.
