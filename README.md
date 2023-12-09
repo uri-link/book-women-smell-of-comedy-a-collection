@@ -39,6 +39,8 @@ And now for my favorite smelly comedian female smelly joke, the one you have all
 
 The stage is setup like an apartment room. a couple people in the room and the door crashes open and in flys a woman with her hands crossed and under her arm pits.
 
+<img src="https://github.com/uri-link/book-women-smell-of-comedy-a-collection/blob/main/5555dream_TradingCard.jpg" width="500px"></img>
+
 classic joke
 
 but its her who-ha not her arm pits. So heres what we want to do.
