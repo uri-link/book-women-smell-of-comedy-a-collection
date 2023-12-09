@@ -127,3 +127,13 @@ the first chich says to the other, which one is the other?
 [after a few initial readings]
 
 some women do not think or beleive in thier hearts that these women are the victors. These people have no faith in the smelly. The smelly smelly smell that was emited? You doubt the smell? That's the joke!
+
+...
+
+they still doubt the women
+
+The women are doubting that the women were really the victors of the story at the end...
+
+...
+
+The smell was so strong.
