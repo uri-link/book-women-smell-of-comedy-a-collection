@@ -29,6 +29,8 @@ Rules:
 
 12. Huh? (Physical Humour...)
 
+13. No Saving Women From Evil Jokes
+
 <img src="https://github.com/nathanielburman/book-women-smell-of-comedy-a-collection/blob/main/smelly01.png" width="100%"></img>
 
 And now for my favorite smelly comedian female smelly joke, the one you have all been waiting for... from SNL... she's back.
