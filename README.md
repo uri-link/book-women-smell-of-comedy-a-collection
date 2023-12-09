@@ -115,7 +115,7 @@ so they look down and see a twitch
 
 a movement
 
-their smells pits and dorks not even an issue anymore
+their smelly pits and dorks are not even an issue anymore
 
 ...
 
