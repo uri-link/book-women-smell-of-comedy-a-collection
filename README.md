@@ -139,3 +139,9 @@ The women are doubting that the women were really the victors of the story at th
 ...
 
 The smell was so strong.
+
+...
+
+when your ready to move on, who was in those furry costumes?!?!?!?!
+
+A new mystery awaits. A new smell emerges from the depths of hell.
