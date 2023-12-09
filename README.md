@@ -47,6 +47,8 @@ but its her who-ha not her arm pits. So heres what we want to do.
 
 send in three homosexuals in furry costumes, then kick them in the balls...
 
+<img src="https://github.com/uri-link/book-women-smell-of-comedy-a-collection/blob/main/5551dream_TradingCard.jpg" width="500px"></img>
+
 ...
 
 They knew what we were doing. Okay, batten down the hatches. BANG BOOM.
